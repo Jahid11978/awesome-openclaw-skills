@@ -1,3 +1,12 @@
+---
+
+**Owner:** Jahid  
+**Email:** jahid11978@outlook.com  
+**Platform:** JAHIDS.AI  
+**Organization:** mdjahid11978-design  
+
+---
+
 <div align="center">
 
 <a href="https://clawskills.sh/">
